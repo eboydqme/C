@@ -1,3 +1,3 @@
 # Fortnite-External-Source-Proofex
 https://discord.gg/TqjPbTAE
-    Join here for source
+    Join here for Spoofer
