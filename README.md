@@ -1,3 +1,3 @@
 # Fortnite-External-Source-Proofex
-[https://discord.gg/9fDh5kEDHc
+https://discord.gg/TqjPbTAE
     Join here for source
